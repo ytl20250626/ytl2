@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://hj-624.pages.dev/">51视频海角</a>
 
-点击访问：<a href="https://heiliao2623.pages.dev/>八卦爆料</a>
+点击访问：<a href="https://heiliao2623.pages.dev/">八卦爆料</a>
 
 点击访问：<a href="https://heiliao623.pages.dev/">吃瓜曝光黑料</a>
 
